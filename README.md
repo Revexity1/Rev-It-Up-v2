@@ -25,3 +25,4 @@
 ### Q: Where did you get the name "RevItUp v2"
 #### A: in the question right above i explain the V2 part. Now Rev (the first 3 letters of my discord username) came from when i used to watch this minecraft twitch streamer called oridont and they used to call me rev (first 3 letters) and like everyone calls me rev soo i used that and the it up part is because it kind of makes since RevItUp like reving up a car
 ### ------------------------------
+# WARNING: IF U BOUGHT THIS MENU YOU WHERE SCAMMED PLEASE CONTACT Revexity1@gmail.com FOR FAURTHER SUPPORT
