@@ -2,6 +2,7 @@
 ## who we are to start off
 ### Milk. role: lead developer
 ### Yz_star role: Co Developer
+### Coolvr90 role: Developer
 ### Revexity1 role: Menu owner
 ### ----------------------------
 ## Mods
